@@ -1,3 +1,5 @@
+% Privacy Policy
+
 Last updated on March 30, 2022
 
 What personal information do I collect?
